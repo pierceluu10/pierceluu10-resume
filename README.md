@@ -1,5 +1,5 @@
 pierceluu10 resume
 accessible at:
-https://pierceluu10.github.io/pierceluu10-resume/Pierce_Luu___Resume_Current.pdf
+https://pierceluu10.github.io/pierceluu10-resume/CURRENT_RESUME_PIERCE.pdf
 
 ^-^
